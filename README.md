@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @c-vw
-- 👀 I’m interested in design, type and letters, art
+- 👀 I’m interested in design, type and letters and art that questions conventionality
 - 🌱 I’m currently learning to be self-sufficient as much as I can
 - 💞️ I’m looking to collaborate on passionated and enthusiastic projects to have fun
 - 📫 How to reach me by email
